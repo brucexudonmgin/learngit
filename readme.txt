@@ -5,4 +5,4 @@ tom is an American student.
 skshkdshashk
 sssssss
 zhang san feng si le 
-wo men dou shi lao hao ren
+wo men dou shi xiao hai zi
